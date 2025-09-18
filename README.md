@@ -1,1 +1,1 @@
-https://navi4o4ek.github.io/rsschool-cv/cv
+https://navi4o4ek.github.io/rsschool-cv/
